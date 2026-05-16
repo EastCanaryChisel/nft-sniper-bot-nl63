@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with high-frequency nft sniper bot | stop-loss + wash-trading-execution, the #1 nft sniper bot. Includes stop-loss and wash-trading-execution for a faster
 
 
 
